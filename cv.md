@@ -1,6 +1,6 @@
 **Ekaterina Golovatskaya**
 
-My Future
+My Future 2
 
 **Phone:** +7 916 8154869
 
