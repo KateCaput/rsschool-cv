@@ -27,5 +27,5 @@ Lomonosov Moscow State University, Journalism
 **Languages**
 
 -   Russian – native speaker
--   English – B1 (B2 in process)
+-   English – B2 
 -   French – A2
