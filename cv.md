@@ -1,6 +1,6 @@
 **Ekaterina Golovatskaya**
 
-**Phone:** +7 916 8154869
+**Phone:** +7 916 8154796
 
 **E-mail:** [egolova@mail.ru](mailto:egolova@mail.ru)
 
